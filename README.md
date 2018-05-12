@@ -1,2 +1,0 @@
-# Kyunggi Life
-
